@@ -6,7 +6,7 @@ Need help with Supplio? We're here for you.
        
 For questions, feedback, or issues, reach out to us at:
        
-**Email:** lorenzobodmer@gmail.com
+**Email:** lorenzobodmer@me.com
       
 ## Common Questions
       
